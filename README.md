@@ -1,8 +1,7 @@
 👋 Hi, I’m @Qrhl
 
-I am a Security Engineer with 3 years of experience currently working on premises and in the Cloud at Excellium Services.
-Curious by nature, I am always eager to learn new things.
-Feel free to reach out!
+Working for 5+ years for big and small companies, on premises and in the Cloud.
+Driven and always up for a challenge, feel free to reach out!
 
 📫 https://www.quentinruhl.xyz
 
